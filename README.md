@@ -7,7 +7,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...sms on email 
 
-My Linkedin : https://www.linkedin.com/in/sujeet-kumar-sharma-b36609201](https://www.linkedin.com/in/santosh-singh-6870bb213/
+My Linkedin : https://www.linkedin.com/in/santosh-singh-6870bb213/
 <!---
 getsettalk/getsettalk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
